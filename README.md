@@ -1,1 +1,0 @@
-# hashim-afzal.github.io
